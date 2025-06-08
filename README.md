@@ -1,4 +1,6 @@
-Okay
+Crazy? I was crazy once, They locked me in a room, a rubber room, a rubber room with rats, and rats make me crazy.
+
+I love my wife
 
 <!--
 **Folie-a-Deuxx/Folie-a-Deuxx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
