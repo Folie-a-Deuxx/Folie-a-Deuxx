@@ -1,5 +1,7 @@
 Crazy? I was crazy once, They locked me in a room, a rubber room, a rubber room with rats, and rats make me crazy.
 
+I go by Bone, Aurora or Sha heh
+
 I love my wife
 
 <!--
